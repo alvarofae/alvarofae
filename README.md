@@ -1,0 +1,9 @@
+- # sobre mim
+- 👋 Hi, I’m @alvarofae
+-  alvaro.fae@escola.pr.gov.br
+- 👀 I’m interested in trabalhar, aumentar a renda financeira da minha familia...
+- 🌱 I’m currently learning a se acalmar perante algumas situaçoes...
+- 💞️ I’m looking to collaborate on  a por alimento no prato brasileira...
+
+
+
